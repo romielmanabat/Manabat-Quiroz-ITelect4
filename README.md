@@ -1,1 +1,1 @@
-# Manabat-Quiroz-ITelect4
+# Mag push naka pre alakung agawa
